@@ -6,8 +6,7 @@
 - 👯 I’m looking to collaborate on **innovative projects.**
 
 - 📫 How to reach me **0albertoknow0@gmail.com**
-
-<h3 align="left">Connect with me:</h3>
+- 
 <p align="left">
 </p>
 
